@@ -1,5 +1,5 @@
 
-<img src="https://github.com/user-attachments/assets/64c12072-5ee5-4f99-963d-801c0bb7af8d" width="50%" alt="Описание кисти">
+<img src="https://github.com/user-attachments/assets/64c12072-5ee5-4f99-963d-801c0bb7af8d" width="30%" alt="Описание кисти">
 
 
 
