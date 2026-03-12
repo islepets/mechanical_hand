@@ -1,5 +1,5 @@
 
-![Sea0a7ecf12fd4b63a18ddc5dd169ff0fO jpg_640x640](https://github.com/user-attachments/assets/64c12072-5ee5-4f99-963d-801c0bb7af8d)
+![Sea0a7ecf12fd4b63a18ddc5dd169ff0fO jpg_200x200](https://github.com/user-attachments/assets/64c12072-5ee5-4f99-963d-801c0bb7af8d)
 
 
 
